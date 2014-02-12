@@ -6,6 +6,9 @@ My friend Lauren McCarthy asked if I want to go on a date with her new app.
 This is [the project's website](http://www.crowdpilot.me/).
 
 I said yes, because we have been talking about these things recently. And I had no success with [Coffee Meets Bagle](https://coffeemeetsbagel.com/), [OkCupid](https://www.okcupid.com/) and [HowAboutWe](http://www.howaboutwe.com/) so far, after one month of trying.
+Lauren said "I think the chances of it being your future wife might be low but I thought it could be a funny, weird, interesting date experience to have." 
+
+I am trying this to prover her wrong. May this be the path to find my true love. 
 
 I will keep a repo of before, during and after the date.
 
