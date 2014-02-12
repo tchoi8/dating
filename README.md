@@ -51,3 +51,5 @@ Issues at hand
 8. Should I take my date to this seminar on [Excommunication?] (http://events.newschool.edu/event/excommunication_three_inquiries_in_media_and_mediation_by_alexander_galloway_eugene_thacker_and_mckenzie_wark#.Uvuf1UJdWTG) It happens in the same time as the date. I didn't know this is happening until just now. 
 
 "Always connect"—that is the imperative of today’s media. But what about those moments when media cease to function properly, when messages go beyond the sender and receiver to become excluded from the world of communication itself—those messages that state: “There will be no more messages”? In this book, Alexander R. Galloway, Eugene Thacker, and McKenzie Wark turn our usual understanding of media and mediation on its head by arguing that these moments reveal the ways the impossibility of communication is integral to communication itself—instances they call excommunication.
+
+//long time ago, I took my blind date to a sound art concert (in a university, and my friends were playing laptop noise) I didn't get to see her after the concert. Maybe that's telling something. 
