@@ -42,4 +42,7 @@ Issues at hand
 2. Should I get a flower for my date? or should I find a time during the date to get her a flower? 
 3. Should I take my camera or leave it at home? 
 4. Should I use my real name, or be anonymous?: Kyle McDonald said I should be myself so other people can help me out better (knowing who I am), and Michael said staying anonymous may make it feel easier. "More anonymous style is better! You will feel more comfortable." 
-
+5. Where to go to get dinner? The place needs to be close to the NuMu and sort of quiet. 
+6. What to talk about? Kyle said I should not worry about what to talk about, but what I would ask her. 
+7. What to ask her? family, job, friends, life, or this project? 
+8. 
