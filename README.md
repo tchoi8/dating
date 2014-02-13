@@ -54,7 +54,7 @@ Issues at hand
 Questions
 =========
 
-* Did you wonder at any point about the people out there listening and what it was like for them? Or were you busy being inundated with all their feedback and maintaining the date at the same time?
+* Did you wonder at any point about the people out there listening and what it was like for them and who they were? Or were you busy being inundated with all their feedback and maintaining the date at the same time?
 
 "Always connect"—that is the imperative of today’s media. But what about those moments when media cease to function properly, when messages go beyond the sender and receiver to become excluded from the world of communication itself—those messages that state: “There will be no more messages”? In this book, Alexander R. Galloway, Eugene Thacker, and McKenzie Wark turn our usual understanding of media and mediation on its head by arguing that these moments reveal the ways the impossibility of communication is integral to communication itself—instances they call excommunication.
 
