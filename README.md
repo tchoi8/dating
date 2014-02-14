@@ -104,20 +104,20 @@ I walk to the diner and ask for a table reserved for Michael, or Rhizome. They d
 
 I forgot to bring my phone, so I only have Lauren's phone. Her friends keep texting to her about the project. I see the project getting retweeted by familiar people. Oh boy, it feels like I'm going on stage, all alone in this diner. 
 
-Date on Crowd Pilot 
+Date on Crowdpilot 
 ---
 
-My date arrives ten minutes late. She's an attractive girl with cute looks. She's probably in her late twenties or early thirties. I said Hi and she said Hi. We look at our phone and try to turn on the app. The app doesn't work. It was working until few minutes ago. We spend the next five minutes struggling to connect to the app. We hardly look at each other. Her app is connected first, and I keep trying to turn mine on. 
+My date arrives ten minutes late. She's an attractive girl with cute looks. She's probably in her late twenties or early thirties. I say Hi and she says Hi. We look at our phone and try to turn on the app. The app doesn't work. It was working until few minutes ago. We spend the next five minutes struggling to connect to the app. We hardly look at each other. Her app is connected first, and I keep trying to turn mine on. 
 
-We introduce ourselves. She tells her name. I worried about telling my real name, so I told her my name quickly and also my names which I haven't used for years. I told her she can call me Tony. but she never called me by name the whole night, so it was probably not worth the trouble to get a fake name. 
+We introduce ourselves. She tells her name. I worry about telling my real name, so I tell her my name quickly and also my names which I haven't used for years. I tell her she can call me Tony. but she never calls me by name the whole night, so it was probably not worth the trouble to get a fake name. 
 
-We talk about the usual blind date stuff: work, apartment, friends, home, sports, television, sports and drugs. It was uneasy at first to be so talkative and also have attentions diverged between the app and my date. I felt strange when she would quickly glimpse at her phone to come up with what to say. However it didn't feel any more awkward than when somone looks at their phone during dinner or parties. 
+We talk about the usual blind date stuff: work, apartment, friends, home, sports, television, sports and drugs. It is uneasy at first to be so talkative and also have attentions diverged between the app and my date. I feel strange when she quickly glimpses at her phone to come up with what to say. However it doesn't feel any more awkward than when somone looks at their phone during dinner or parties. 
 
-We were talking fast about different topics, my app was running well and I got some good feedbacks. By the time we were finighing our first drink, I wasn't paying much attention to the app. I like the way she smiles. She has an interesting voice that cracks up when she laughs. She makes the kind of art that I'm familiar with. We talk about code and painting. It feels like this might almost work out. 
+We are talking fast about different topics, my app is running well and I get some good feedbacks. By the time we are finishing our first drink, I'm not paying much attention to the app. I like the way she smiles. She has an interesting voice that cracks up when she laughs. She makes the kind of art that I'm familiar with. We talk about code and painting. It feels like this might almost work out. 
 
 I talk about personal things, my dreams and travels, habits and goals. She talks about Baltimore, her hometown. It sounds like she is ready to move out of the in house design job and make art full time, but is probably insecure to commit full time. I can relate to that, so I try my best to listen attentively. She has a cute smile. 
 
-After we finish our second drink, I feel pretty comfortable about being with her. But our conversation does feel a bit hyper stimulated. There was not much time between our conversation, there was no space for natural pause. It is easy to confuse stimulation with excitement. She asks more questions from the Crowd Pilots. We talk about food and the Internet. Some pilots complain we talk too much about foor or the Internet. We don't know what to talk about, so go back to easier topic like favorite grocery store. 
+After we finish our second drink, I feel pretty comfortable about being with her. But our conversation does feel a bit hyper stimulated. There is not much time between our conversation, there is no space for natural pause. It is easy to confuse stimulation with excitement. She asks more questions from the Crowdpilots. We talk about food and the Internet. Some pilots complain we talk too much about food or the Internet. We don't know what to talk about, so go back to easier topic like favorite grocery store. 
 
 
 ![](http://farm8.staticflickr.com/7441/12505615804_122b0d8476_c.jpg "The only picture from my blinkd date")
