@@ -167,7 +167,7 @@ The server says the check has been taken care of by the sponsor. We exchange our
 ![](http://farm8.staticflickr.com/7329/12524217274_e4cf0cdfc3_c.jpg)
 On the cold subway, I think about what just happened. A participatory performance with the presence of anonymous spectators? A voyueristic and exhibitionist desire packaged into an app? or a light entertainment to make awkward moments more humorous? or simply a dissapointment from a date that probably didn't really work out?
 
-The withdrawl from Crowdpilot is really disorienting my sense of presence. I know there were at least few hundreds of people listening to our blind date. But I am already feeling displaced from my date who was physically close to me. So fast and so easily, our presence disappears from one another. 
+The withdrawal from Crowdpilot is really disorienting my sense of presence. I know there were at least few hundreds of people listening to our blind date. But I am already feeling displaced from my date who was physically close to me. So fast and so easily, our presence disappears from one another. 
 
 I'm pretty hungry and tired. but I choose to go to a book launch by some of my favorite writers. I thought I didn't have time to go, but since the date ended in an hour, I could still make it. I go to the New School and get a copy of Excommuncatiom by Galloway, Thacker and Wark. I say hi to the authors and catch up with some friends. I tell Alex that I just got here from a blind date where I was crowdsourcing what to say. He laughs and doesn't believe me. His friend tells me I'm dressed well today and she can't believe the date didn't go so well. 
 
