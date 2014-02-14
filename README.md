@@ -69,7 +69,7 @@ Date 2/12/2014
 ====
 ![](http://farm8.staticflickr.com/7331/12523730455_6081906cff_c.jpg)
 
-E-mail from Michael Connor (curator of Rhizmoe.org )
+E-mail from Michael Connor (curator of Rhizome.org )
 
 Before the date
 Make sure the app is working on your phone, and you know how to use it. 
@@ -147,7 +147,7 @@ I talk about personal things, my dreams and travels, habits and goals. She talks
 
 ![](http://farm4.staticflickr.com/3713/12523906575_76e0efc041_b.jpg)
 
-My friends are giving me advise, and also some friends are giving her advise. (Screenshot from my friend who was her Crowdpilot)
+My friends are giving me advise, and also some friends are giving her advise. (Screenshot from Tega who was Crowdpiloting my date)
 
 After we finish our second drink, I feel pretty comfortable about being with her. But our conversation does feel a bit hyper stimulated. There is not much time between our conversation, there is no space for natural pause. It is easy to confuse stimulation with excitement. She asks more questions from the Crowdpilots. We talk about food and the Internet. Some pilots complain we talk too much about food or the Internet. We don't know what to talk about, so go back to easier topic like favorite grocery store. 
 
