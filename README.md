@@ -145,14 +145,20 @@ We are talking fast about different topics, my app is running well and I get som
 
 I talk about personal things, my dreams and travels, habits and goals. She talks about Baltimore, her hometown. It sounds like she is ready to move out of the in house design job and make art full time, but is probably insecure to commit full time. I can relate to that, so I try my best to listen attentively. She has a cute smile. 
 
+![](http://farm4.staticflickr.com/3713/12523906575_76e0efc041_b.jpg)
+
+My friends are giving me advise, and also some friends are giving her advise. (Screenshot from my friend who was her Crowdpilot)
+
 After we finish our second drink, I feel pretty comfortable about being with her. But our conversation does feel a bit hyper stimulated. There is not much time between our conversation, there is no space for natural pause. It is easy to confuse stimulation with excitement. She asks more questions from the Crowdpilots. We talk about food and the Internet. Some pilots complain we talk too much about food or the Internet. We don't know what to talk about, so go back to easier topic like favorite grocery store. 
+
+The withdrawal 
+---
+I take a restroom break. I make sure my bowtie is in right place. I feel pretty good. I think about couple of restaurants to go to. Maybe my favorite Japanese place in East Village, or maybe I ask Crowdpilot. I come back to the table and she goes to the restroom. I turn off Crowdpilot because my battery is low. She comes back. I ask if she wants to eat something. and she says she has to go back home to work on a project. I feel pretty disappointed, but try not to show it. It's probably true that she has to get on a call with a collaborator tonight and work on some projects. And we did have a good time over nice drinks. But I feel like I probably won't see her again, unless we run into each other at another art opening or performance. It feels like a curtain call, the show's over and we go home. 
+
 
 
 ![](http://farm8.staticflickr.com/7441/12505615804_122b0d8476_c.jpg "The only picture from my blinkd date")
 
-the withdrawal 
----
-I take a restroom break. I make sure my bowtie is in right place. I feel pretty good. I think about couple of restaurants to go to. Maybe my favorite Japanese place in East Village, or maybe I ask Crowdpilot. I come back to the table and she goes to the restroom. I turn off Crowdpilot because my battery is low. She comes back. I ask if she wants to eat something. and she says she has to go back home to work on a project. I feel pretty disappointed, but try not to show it. It's probably true that she has to get on a call with a collaborator tonight and work on some projects. And we did have a good time over nice drinks. But I feel like I probably won't see her again, unless we run into each other at another art opening or performance. It feels like a curtain call, the show's over and we go home. 
 
 She turns off her app and we ask for a check. There are a few moments of strange silence between  our conversation. Finally, a genuine sense of presence between two strangers.  
 
