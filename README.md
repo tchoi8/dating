@@ -1,14 +1,14 @@
 dating
 ======
 
-My friend Lauren McCarthy asked if I want to go on a date with her new app.
+My friend Lauren McCarthy asks if I want to go on a date with her new app.
  
 This is [the project's website](http://www.crowdpilot.me/).
 
-I said yes, because we have been talking about these things recently. And I had no success with [Coffee Meets Bagle](https://coffeemeetsbagel.com/), [OkCupid](https://www.okcupid.com/) and [HowAboutWe](http://www.howaboutwe.com/) so far, after one month of trying.
-Lauren said "I think the chances of it being your future wife might be low but I thought it could be a funny, weird, interesting date experience to have." 
+I say yes, because we have been talking about these things recently. And I've had no success with [Coffee Meets Bagle](https://coffeemeetsbagel.com/), [OkCupid](https://www.okcupid.com/) and [HowAboutWe](http://www.howaboutwe.com/) so far, after one month of trying.
+Lauren says "I think the chances of it being your future wife might be low but I thought it could be a funny, weird, interesting date experience to have." 
 
-I am trying this to prover her wrong. May this be the path to find my true love. 
+I am trying this to prove her wrong. May this be the path to find my true love. 
 
 I will keep a repo of before, during and after the date.
 
@@ -56,13 +56,22 @@ Questions
 
 * Did you wonder at any point about the people out there listening and what it was like for them and who they were? Or were you busy being inundated with all their feedback and maintaining the date at the same time?
 
+
+
+Thoughts
+=========
+
 "Always connect"—that is the imperative of today’s media. But what about those moments when media cease to function properly, when messages go beyond the sender and receiver to become excluded from the world of communication itself—those messages that state: “There will be no more messages”? In this book, Alexander R. Galloway, Eugene Thacker, and McKenzie Wark turn our usual understanding of media and mediation on its head by arguing that these moments reveal the ways the impossibility of communication is integral to communication itself—instances they call excommunication.
 
 //long time ago, I took my blind date to a sound art concert (in a university, and my friends were playing laptop noise) I didn't get to see her after the concert. Maybe that's telling something. 
 
+
+Date
+====
+
 Before the date
 ---
-Lauren gave me her phone to take to the date. I turned on the phone and connected to Crowd Pilot. I connected my facebook account with the app, and posted my first question. 
+Lauren gives me her phone to take to the date. I turn on the phone and connect to Crowdpilot. I connect my facebook account with the app, and post my first question. 
 
 "I'm going out on a blind date. Should I wear a bow tie or a neck tie?" 
 
@@ -77,23 +86,23 @@ Dick
 Put a bowtie on your dick 
 ....
 
-and it continued. 
+and it continues. 
 
-At that point I worry if it will be like this throughtout the whole date. I get worried and consider hiding my identity. I write to Michael and Lauren that I am going out now. 
+At this point I worry if it will be like this throughtout the whole date. I get worried and consider hiding my identity. I write to Michael and Lauren that I am going out now. 
 
-It got some time to get used to the realization that the sound around you are constantly broadcasted. I took the J train into Manhattan. I kept asking simple questions. "Please help me find a restaurant near L.E.S or Soho". I get some messages and suggestions but nothing substantial. As it was getting closer to 6pm, the announced time for the performance, I get more responses. I arrive in Bowery station twenty minutes before the date. I walk up the street and pass by the New Museum. I look into the glass door, try to see if I can find my date waiting there. I remember I am supposed to meet her in a diner next door. I still have fifteen minutes. I go to the grocery store and find some flowers. I didn't know if I should get a flower for her, or something else. Kyle said most girls like flowers, so I go with his advise. I ask Crowd Pilot. 
+It takes some time to get used to the realization that the sound around you are constantly broadcasted. I take the J train into Manhattan. I keep asking simple questions. "Please help me find a restaurant near L.E.S or Soho". I get some messages and suggestions but nothing substantial. As it gets closer to 6pm, the announced time for the performance, I get more responses. I arrive in Bowery station twenty minutes before the date. I walk up the street and pass by the New Museum. I look into the glass door, try to see if I can find my date waiting there. I remember I am supposed to meet her in a diner next door. I still have fifteen minutes. I go to the grocery store and find some flowers. I didn't know if I should get a flower for her, or something else. Kyle said most girls like flowers, so I go with his advise. I ask Crowd Pilot. 
 
 "I am going on a blind date. Should I get a tulip or lilac for her?"
 
-In less than a minute, I get a dozen advises that lean toward tulip. I ask Crowd Pilot again.
+In less than a minute, I get a dozen advises that lean toward tulip. I ask Crowdpilot again.
 
 "Red or White tulip?" 
 
-This time, I get a mixed advises on both ends. I get a pink tulip to make everyone happy. As I check out at the counter, I keep talking to the app, because some pilots would respond to my questions. The delay between audio and advise was less than 30 seconds, but it was clear what they were reacting to. 
+This time, I get mixed advice on both ends. I get a pink tulip to make everyone happy. As I check out at the counter, I keep talking to the app, because some pilots will respond to my questions. The delay between audio and advise is less than 30 seconds, but it is clear what they were reacting to. 
 
-I walk to the diner and ask for a table reserved for Michael, or Rhizome. They don't know and can't find it. In few minutes they find the reservation and guide me to the back of the restaurant. I hang my coat and drink a sip of water. A waiter comes by, smiling and asking if I'm nervous before a big date. I said yes, and he gives me a fist bump. It feels like this guy must know I'm on Crowd Pilot and he is an agent sent by the pilots. 
+I walk to the diner and ask for a table reserved for Michael, or Rhizome. They don't know and can't find it. After a few minutes they find the reservation and guide me to the back of the restaurant. I hang my coat and drink a sip of water. A waiter comes by, smiling and asking if I'm nervous before a big date. I said yes, and he gives me a fist bump. It feels like this guy must know I'm on Crowd Pilot and he is an agent sent by the pilots. 
 
-I forgot to bring my phone, so I only have Lauren't phone. Her friends keep texting to her about the project. I see the project getting retweeted by familiar people. Oh boy, it feels like I'm going on stage, all alone in this diner. 
+I forgot to bring my phone, so I only have Lauren's phone. Her friends keep texting to her about the project. I see the project getting retweeted by familiar people. Oh boy, it feels like I'm going on stage, all alone in this diner. 
 
 Date on Crowd Pilot 
 ---
