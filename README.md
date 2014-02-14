@@ -67,6 +67,7 @@ Questions from github
  
 Date 2/12/2014 
 ====
+![](http://farm8.staticflickr.com/7331/12523730455_6081906cff_c.jpg)
 
 E-mail from Michael Connor (curator of Rhizmoe.org )
 
@@ -116,6 +117,7 @@ At this point I worry if it will be like this throughtout the whole date. I get 
 
 It takes some time to get used to the realization that the sound around you are constantly broadcasted. I take the J train into Manhattan. I keep asking simple questions. "Please help me find a restaurant near L.E.S or Soho". I get some messages and suggestions but nothing substantial. As it gets closer to 6pm, the announced time for the performance, I get more responses. I arrive in Bowery station twenty minutes before the date. I walk up the street and pass by the New Museum. I look into the glass door, try to see if I can find my date waiting there. I remember I am supposed to meet her in a diner next door. I still have fifteen minutes. I go to the grocery store and find some flowers. I didn't know if I should get a flower for her, or something else. Kyle said most girls like flowers, so I go with his advise. I ask Crowdpilot. 
 
+![](http://farm3.staticflickr.com/2883/12524220284_b5e7277316_c.jpg)
 "I am going on a blind date. Should I get a tulip or lilac for her?"
 
 In less than a minute, I get a dozen advises that lean toward tulip. I ask Crowdpilot again.
@@ -137,6 +139,8 @@ We introduce ourselves. She tells her name. I worry about telling my real name, 
 
 We talk about the usual blind date stuff: work, apartment, friends, home, sports, television, sports and drugs. It is uneasy at first to be so talkative and also have attentions diverged between the app and my date. I feel strange when she quickly glimpses at her phone to come up with what to say. However it doesn't feel any more awkward than when somone looks at their phone during dinner or parties. 
 
+![](http://farm8.staticflickr.com/7398/12523727385_e62a24a490_c.jpg)
+
 We are talking fast about different topics, my app is running well and I get some good feedbacks. By the time we are finishing our first drink, I'm not paying much attention to the app. I like the way she smiles. She has an interesting voice that cracks up when she laughs. She makes the kind of art that I'm familiar with. We talk about code and painting. It feels like this might almost work out. 
 
 I talk about personal things, my dreams and travels, habits and goals. She talks about Baltimore, her hometown. It sounds like she is ready to move out of the in house design job and make art full time, but is probably insecure to commit full time. I can relate to that, so I try my best to listen attentively. She has a cute smile. 
@@ -146,15 +150,16 @@ After we finish our second drink, I feel pretty comfortable about being with her
 
 ![](http://farm8.staticflickr.com/7441/12505615804_122b0d8476_c.jpg "The only picture from my blinkd date")
 
-the withdrawl 
+the withdrawal 
 ---
-I take a restroom break. I make sure my bowtie is in right place. I feel pretty good. I think about couple of restaurants to go to. Maybe my favorite Japanese place in East Village, or maybe I ask Crowdpilot. I come back to the table and she goes to the restroom. I turn off Crowdpilot because my battery is low. She comes back. I ask if she wants to eat something. and she says she has to go back home to work on a project. I feel pretty disappointed, but try not to show it. It's probably true that she has to get on a call with a overseas collaborator tonight and work on some projects. and we did have a good time over nice drinks. But I feel like I probably won't see her again, unless we run into each other at another art opening or performance. It feels like a curtain call, the show's over and we go home. 
+I take a restroom break. I make sure my bowtie is in right place. I feel pretty good. I think about couple of restaurants to go to. Maybe my favorite Japanese place in East Village, or maybe I ask Crowdpilot. I come back to the table and she goes to the restroom. I turn off Crowdpilot because my battery is low. She comes back. I ask if she wants to eat something. and she says she has to go back home to work on a project. I feel pretty disappointed, but try not to show it. It's probably true that she has to get on a call with a collaborator tonight and work on some projects. And we did have a good time over nice drinks. But I feel like I probably won't see her again, unless we run into each other at another art opening or performance. It feels like a curtain call, the show's over and we go home. 
 
-She turns off her app and we ask for a check. There are a few moments of strange silence between  our conversation. Finally, a genuine sense of presence between two strangers. 
+She turns off her app and we ask for a check. There are a few moments of strange silence between  our conversation. Finally, a genuine sense of presence between two strangers.  
 
-We exchange our contact, twitter handle and other domain names. Our voice changes a bit, probably because we have been talking for an hour. Or possibly because we are not being broadcasted any more. We talk about the meaning of this project. I ask if she thinks people will use this kind of app in near future. We talk about how people already use chats and messages to constantly get feedback from friends and family. I wish her best luck with the project. We walk out to Bowery. It's pretty cold. I giver her a light hug and we go the other way on Houston. 
+The server says the check has been taken care of by the sponsor. We exchange our contact, twitter handle and other domain names. Our voice changes a bit, probably because we have been talking for an hour. Or possibly because we are not being broadcasted any more. We talk about the meaning of this project. I ask if she thinks people will use this kind of app in near future. We talk about how people already use chats and messages to constantly get feedback from friends and family. I wish her best luck with the project. We walk out to Bowery. It's pretty cold. I giver her a light hug and we go the other way on Houston. 
 
-On the cold subway, I think about what just happened. A participatory performance with the presence of anonymous assistants? A voyueristic and exhibitionist desire packaged into an app? or a light entertainment to make awkward moments more humorous? or simply a dissapointment from a date that didn't really work out?
+![](http://farm8.staticflickr.com/7329/12524217274_e4cf0cdfc3_c.jpg)
+On the cold subway, I think about what just happened. A participatory performance with the presence of anonymous spectators? A voyueristic and exhibitionist desire packaged into an app? or a light entertainment to make awkward moments more humorous? or simply a dissapointment from a date that probably didn't really work out?
 
 The withdrawl from Crowdpilot is really disorienting my sense of presence. I know there were at least few hundreds of people listening to our blind date. But I am already feeling displaced from my date who was physically close to me. So fast and so easily, our presence disappears from one another. 
 
