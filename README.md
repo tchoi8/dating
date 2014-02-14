@@ -39,7 +39,7 @@ www.crowdpilot.me (will be live for download tomorrow AM)
 
 That's it! You need to leave the app open (if doesn't work in the background, so don't switch to another app or go back to the home screen). If you stop getting suggestions for a while, try force quitting the app and restarting a session. 
  
-Questions to ask Crwodpilot  
+Questions to ask Crowdpilot  
 ---
 
 1. Meet at the New Museum Lobby or somewhere else?: Michael Connor (from Rhizome) told me to meet at a restarurant next to the NuMu, and order a drink and an appetizer but get food somewhere else. 
